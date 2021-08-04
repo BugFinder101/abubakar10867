@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @abubakar10867
+- 👀 I’m interested in Ethical Hacking,Programming
+- 🌱 I’m currently learning Programming and Kali Linux Basics,and some networking Basics
+- 📫 How to reach me Insta:Doraemon10867
